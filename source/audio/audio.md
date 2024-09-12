@@ -1,0 +1,1 @@
+Audio media is closely related to the sense of hearing. Judging from the nature of the message received, audio media can convey verbal (spoken language or words) or non-verbal (sounds and vocalizations) messages.
